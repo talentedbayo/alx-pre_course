@@ -1,1 +1,1 @@
-my life is succussful updated
+my life is successful updated
